@@ -1,0 +1,1 @@
+# Mintverse Assets Info
